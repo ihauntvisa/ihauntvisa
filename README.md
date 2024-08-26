@@ -1,18 +1,11 @@
-------------------------
+
 - 👋 Hey! Im ihauntvisa / Ghostly
-- 👀 I’m interested in Chillin
+- 👀 I’m interested in Coding / Gaming / Editing / Designing
 - 🌱 I’m currently learning C+ Java Python
 - 💞️ I’m looking to collaborate on my music carrier
-- 📫 How to reach me Disord Telgram
+- 📫 How to reach me Discord, Telegram,
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: im sigma
-------------------------
-- 👋 Soundcloud Singer
-- 😄 Livin In Tha VIP,
-- 📫 We Vibin,
-- ⚡ We Get Cash,
-- 👀 @ihauntvisa,
-------------------------
+
 
 
 
